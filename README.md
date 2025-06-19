@@ -28,3 +28,22 @@
 * мистер президент путин, в ук рф никак не могу найти статью, которая разрешает марать других своим дерьмом, даже если ты руководитель с выручкой 23 ляма за прошлый год, ну и что что меня зовут к\ лёв 
 
 * offtop closin
+
+![image](https://github.com/user-attachments/assets/4edc2b39-6d94-4800-8018-75f94dbd6fcf)
+
+![image](https://github.com/user-attachments/assets/ca292cde-cccc-4fcc-8228-2da5d6342209)
+
+![image](https://github.com/user-attachments/assets/632f359d-0516-4ddc-bafe-fd385538cce2)
+
+
+![image](https://github.com/user-attachments/assets/81700e61-7935-49a3-bcf3-216c1cc4ec53)
+
+
+![image](https://github.com/user-attachments/assets/e1bf3148-a122-43d2-939c-03e002b0adad)
+
+
+
+
+
+
+
