@@ -43,7 +43,58 @@
 
 * 
 
-*
+* \
+
+* Decided to not deploy at this month
+* A man from Dagestan (registered in Moscow) didnt paid
+* Another man from Moscow didnt paid
+* And man from Saint Petersburg didnt paid
+
+* Job completed entirely, there are key differences between payments when working with EU either US
+* Low knowledge on customers but huge amount of marketing, traders skills not regulated by law
+* Eg. cookie from google is traversed into cookie of other search engine, one global advertisement network
+
+* Where is button to decline request on gosuslugi?
+* Do we need to pay taxes for judgement what does nothing, 
+* just resending me letters. There is another request, first same not completed. 
+* Let us wait
+
+* Did you look at latest falcon deploy?
+
+* \
+
+* Common thesis
+
+* Cambell M
+
+* Rebellion
+
+* Rebell
+
+* Colonial Americans 
+
+* \
+
+* I think the lao tsi stories tells about characters of people
+* Some characters drain from other people
+* Some characters are good to talk
+
+* And we need look to characters of people first
+* Some characters are not recovable
+
+* go on ev0lve 
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
