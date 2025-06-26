@@ -82,7 +82,7 @@
 * And we need look to characters of people first
 * Some characters are not recovable
 
-* go on ev0lve 
+* go on ev0lve \ 8 days 18 videos \ 4 hours map \ 17 minutes map-construction 
 
 
 
