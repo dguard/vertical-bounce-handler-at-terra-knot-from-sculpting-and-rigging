@@ -92,9 +92,9 @@
 
 * sentences for modern russian language
 * Lie back => CD, yan\ \k\not crow you (bounce pointer) / the crow \for\ torch Q /
-* cu\rva\ture / pronouncin: ca vo, 4e (che\st, cho\st) / ca vo (isometric radial, bounce pointer) 4e (isometric radial, bounce pointer)
+* cu\rva\ture / pronouncin: ca vo, 4e (che\st, cho\st) / ca vo (isometric radial, bounce pointer) 4e (isometric radial, bounce pointer) \ * offtop \ * the story when I came from sport training into the street near to la styriene construction, I meet a teen girl on the street and wanted to take a phone contact, I said that in my sport bag C four, asked a few questions about the teen girl and taken a phone number
 
-* 
+
 
 
 
