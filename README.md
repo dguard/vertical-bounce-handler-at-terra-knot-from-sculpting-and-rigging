@@ -84,17 +84,17 @@
 
 * go on ev0lve \ 8 days 18 videos \ 4 hours map \ 17 minutes map-construction 
 
+* 
 
+* \
 
-*
+* 
 
-*
+* sentences for modern russian language
+* Lie back => CD, yan\ \k\not crow you (bounce pointer) / the crow \for\ torch Q /
+* cu\rva\ture / pronouncin: ca vo, 4e (che\st, cho\st) / ca vo (isometric radial, bounce pointer) 4e (isometric radial, bounce pointer)
 
-
-
-
-
-
+* 
 
 
 
