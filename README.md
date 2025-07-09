@@ -184,3 +184,5 @@
 * ![image](https://github.com/user-attachments/assets/0a59f65a-1d34-41f6-a000-eb2223fa3018)
 
 * \
+
+* tell me about smersh
