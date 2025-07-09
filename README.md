@@ -41,9 +41,93 @@
 
 ![image](https://github.com/user-attachments/assets/e1bf3148-a122-43d2-939c-03e002b0adad)
 
+* 
+
+* \
+
+* Decided to not deploy at this month
+* A man from Dagestan (registered in Moscow) didnt paid
+* Another man from Moscow didnt paid
+* And man from Saint Petersburg didnt paid
+
+* Job completed entirely, there are key differences between payments when working with EU either US
+* Low knowledge on customers but huge amount of marketing, traders skills not regulated by law
+* Eg. cookie from google is traversed into cookie of other search engine, one global advertisement network
+
+* Where is button to decline request on gosuslugi?
+* Do we need to pay taxes for judgement what does nothing, 
+* just resending me letters. There is another request, first same not completed. 
+* Let us wait
+
+* Did you look at latest falcon deploy?
+
+* \
+
+* Common thesis
+
+* Cambell M
+
+* Rebellion
+
+* Rebell
+
+* Colonial Americans 
+
+* \
+
+* I think the lao tsi stories tells about characters of people
+* Some characters drain from other people
+* Some characters are good to talk
+
+* And we need look to characters of people first
+* Some characters are not recovable
+
+* go on ev0lve \ 8 days 18 videos \ 4 hours map \ 17 minutes map-construction 
+
+* 
+
+* \
+
+* 
+
+* sentences for modern russian language
+* Lie back => CD, yan\ \k\not crow you (bounce pointer) / the crow \for\ torch Q /
+* cu\rva\ture / pronouncin: ca vo, 4e (che\st, cho\st) / ca vo (isometric radial, bounce pointer) 4e (isometric radial, bounce pointer) \ * offtop \ * the story when I came from sport training into the street near to la styriene construction, I meet a teen girl on the street and wanted to take a phone contact, I said that in my sport bag C four, asked a few questions about the teen girl and taken a phone number
+
+![image](https://github.com/user-attachments/assets/5e8112e7-dcc9-40cd-b174-c45dbbb88108)
+
+![image](https://github.com/user-attachments/assets/9a2ad957-8666-440e-8bed-6dd07fe8529d)
+
+![image](https://github.com/user-attachments/assets/d82c7e04-6a0e-4c5b-bced-cefb4cebb78e)
+
+![image](https://github.com/user-attachments/assets/00cb1616-43cf-4d98-8041-905427f573ff)
+
+* \
+
+![image](https://github.com/user-attachments/assets/8b4d6d9a-d055-4616-84bf-db5ef7956828)
+
+![image](https://github.com/user-attachments/assets/039ee814-adcf-42e7-8dd3-6a8df7c98d32)
 
 
+* \
 
+![image](https://github.com/user-attachments/assets/3214d26a-ea65-4984-9c4a-55b2cc204d12)
 
+* 
 
+* \
+
+*
+
+![image](https://github.com/user-attachments/assets/c46c70a5-b5e8-4761-8791-78eb0ffb35a6)
+
+![image](https://github.com/user-attachments/assets/c05ddff9-34a9-45a7-99f6-a51779fef5b1)
+
+* \
+
+* \
+
+* \
+
+![image](https://github.com/user-attachments/assets/b480b931-4bc9-4f8a-b58c-287092772d1f)
 
