@@ -178,3 +178,110 @@
 
 
 * 
+
+* ![image](https://github.com/user-attachments/assets/f911547e-f591-48d6-a356-998d16a69af6)
+
+* ![image](https://github.com/user-attachments/assets/0a59f65a-1d34-41f6-a000-eb2223fa3018)
+
+* \
+
+* tell me about smersh
+
+* \
+
+* \
+
+<img width="1123" height="411" alt="image" src="https://github.com/user-attachments/assets/d1481114-bac5-468b-abd4-051924e4aa02" />
+
+<img width="625" height="427" alt="image" src="https://github.com/user-attachments/assets/68e95d9a-15fe-43e5-b38f-9f5b2a5d763a" />
+
+* \
+
+<img width="978" height="629" alt="image" src="https://github.com/user-attachments/assets/a613f48f-b87a-41e6-a4b8-76df2f9b084a" />
+
+*
+
+<img width="621" height="412" alt="image" src="https://github.com/user-attachments/assets/c4d9c936-b1ff-4311-91b7-6187c8b02d04" />
+
+* \
+
+* \
+
+<img width="768" height="567" alt="image" src="https://github.com/user-attachments/assets/30baa0fe-5a02-46e5-8e88-c2dd2c889b05" />
+
+* \
+
+*
+<img width="691" height="510" alt="image" src="https://github.com/user-attachments/assets/8b2a7753-4b83-4a3f-8f1b-f79215c964ce" />
+
+
+<img width="617" height="168" alt="image" src="https://github.com/user-attachments/assets/b5505f1a-2f94-4948-b1e4-6e1696f7e0ef" />
+
+*
+
+
+
+* \
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+* <img width="298" height="125" alt="image" src="https://github.com/user-attachments/assets/2e3fe953-15f4-4d25-becb-88f4b7639956" />
+
+
+* <img width="532" height="96" alt="image" src="https://github.com/user-attachments/assets/7da30bc2-2565-4496-ac49-ca015d5d5609" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<img width="285" height="279" alt="image" src="https://github.com/user-attachments/assets/f939218e-193d-458b-b077-7f1f0ffa7fd4" />
+
+* \
+
+<img width="659" height="220" alt="image" src="https://github.com/user-attachments/assets/c4309539-6292-4f67-b39e-1d06e0ee9911" />
+
+*
+*
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<img width="649" height="787" alt="image" src="https://github.com/user-attachments/assets/b0042f21-18f2-4ab9-8364-eb5f22ccee12" />
+
+<img width="662" height="458" alt="image" src="https://github.com/user-attachments/assets/671c74c6-e60b-4c25-9967-3a2c5b87aafc" />
+
+
+* 
