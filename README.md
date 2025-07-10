@@ -197,5 +197,5 @@
 
 * \
 
-* <img width="978" height="629" alt="image" src="https://github.com/user-attachments/assets/a613f48f-b87a-41e6-a4b8-76df2f9b084a" />
+<img width="978" height="629" alt="image" src="https://github.com/user-attachments/assets/a613f48f-b87a-41e6-a4b8-76df2f9b084a" />
 
