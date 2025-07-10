@@ -186,3 +186,9 @@
 * \
 
 * tell me about smersh
+
+* \
+
+* \
+
+<img width="1123" height="411" alt="image" src="https://github.com/user-attachments/assets/d1481114-bac5-468b-abd4-051924e4aa02" />
