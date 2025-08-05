@@ -515,7 +515,8 @@
 
 
 
-* \                                                                                                   
+* \ <img width="344" height="461" alt="image" src="https://github.com/user-attachments/assets/24e05398-a410-4133-817f-5f4921d65cb5" />
+                                                                                                  
 
 
 
